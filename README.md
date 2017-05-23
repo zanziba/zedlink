@@ -1,8 +1,8 @@
 برای یادگیری و آموزش ساخت ربات ضد اسپم تلگرام  به سایت پرمگ مراجعه کنید 
-http://permag.ir
+http://linkknab
 
 کانال ما
-@permag_ir
-
+@linkknab
+فروش ربات ضد لینک
 کانال ربات های ما 
-@permag_bots
+@linkknab
